@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **m.sarhangnote@gmail.com**
 
-- ⚡ Fun fact **Geoffrey Hinton once joked that the best way to advance AI was to "throw away all neural networks" and wait a decade.**
+- ⚡ Fun fact **I hate ML, Deep Learning, LLMs and anything related to AI. I only study them to learn mores, so I can hate them even more!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
