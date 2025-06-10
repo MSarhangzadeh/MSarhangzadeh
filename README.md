@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **m.sarhangnote@gmail.com**
 
-- ⚡ Fun fact **I hate ML, Deep Learning, LLMs and anything related to AI. I only study them to learn mores, so I can hate them even more!**
+- ⚡ Fun fact **I hate ML, Deep Learning, LLMs and anything related to AI. I only study them to learn more, so I can hate them even more!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
